@@ -1,7 +1,7 @@
 # Beef Stew Soup
 
 ## info  
-* 10 minutes 
+* 2 hours 
 * 6 servings  
 
 ## ingredients

@@ -5,16 +5,24 @@
 * 6 servings  
 
 ## ingredients
-* minced garlic
-* Beef Tri-Tip
-* Beef broth 5 cups
-* mushrooms
-* celery stalk
-* carrots
-* potatoes
-* onions
-* tomato sauce
-* Worcestershire Sauce
+* 4 garlic cloves minced garlic
+* 2 lbs Beef Tri-Tip
+* 5 cups of Beef broth
+* 10 small mushrooms
+* 3 medium celery sticks
+* 3 medium carrots
+* 4 cups chopped potatoes
+* 1 large onion
+* 1 cup tomato sauce
+* 1 cup frozen sweet peas
+* 2 tbsp all-purpose flour
+* 2 tsp Worcestershire Sauce
+* 2 1/2 tsp italian herbs blend
+* 2 tbsp fresh chopped parsley
+* 1/2 tbsp sugar
+* 1 tsp tbsp paprika
+* 2 tbsp butter
+* ground pepper
 
 
 ## steps  

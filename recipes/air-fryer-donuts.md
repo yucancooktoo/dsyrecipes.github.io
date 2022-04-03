@@ -12,7 +12,7 @@
 * 200 gram plain yogurt 
 
 ## steps  
-1. Mix all ingredients together
+1. Mix all dry ingredients first and then mix yogurt together
 2. Roll dough into long tube
 3. Cut into cubes and roll into Timbit size balls
 4. Melt 1 tbsp of butter in large bowl and cover balls

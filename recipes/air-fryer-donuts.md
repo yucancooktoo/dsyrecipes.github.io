@@ -14,7 +14,7 @@
 ## steps  
 1. Mix all ingredients together
 2. Roll dough into long tube
-3. Cut into cubes and roll into Timbit balls
+3. Cut into cubes and roll into Timbit size balls
 4. Melt 1 tbsp of butter in large bowl and cover balls
 5. Set air fryer for 5 minutes at 370 degree c
 6. When pre heat ready, add balls to air fryer

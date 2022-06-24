@@ -6,22 +6,22 @@
 
 ## ingredients
 * grass jelly in can
-* Oolong tea or any tea bag you like
+* Oolong or jasmine tea
 * milk
-* honey or sugar
+* honey or maple syrup
 
 ## steps  
 1. 1 can grass jelly use knife to cut it up into bits
 2. Using 2 tea bags, brew 4 cups oolong tea then cool in fridge
 3. 1 ½ very cold milk
-4. 1/2 cup honey or sugar to taste
+4. 1/2 cup honey or maple syrup
 5. add crushed ice
 
 ## notes  
 *  You can make each serving the following way:
 *  1 ½ - 2 cups of brewed tea
 *  1/4 cup of milk
-*  3 table spoons of honey or sugar to taste
+*  3 table spoons of honey or maple syrup (to your taste)
 *  add grass jelly
 *  add crushed ice
 

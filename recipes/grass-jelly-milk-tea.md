@@ -5,9 +5,10 @@
 * 2 servings  
 
 ## ingredients
-* garlic
-* ginger
-* lime juice 
+* grass jelly in can
+* Oolong tea or any tea bag you like
+* milk
+* honey or sugar
 
 ## steps  
 1. 1 can grass jelly

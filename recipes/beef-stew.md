@@ -29,12 +29,13 @@
 1. Cut meat into 1-inch cubes, discard any large pieces of fat. Fat marbleized into the meat is fine!
 2. Sprinkle beef with black pepper, garlic salt, and celery salt. Toss to coat. Sprinkle flour over the meat and toss again.
 3. Heat 3 Tablespoons olive oil in a large skillet over medium-high heat. Add the meat in batches, don’t overcrowd the pan. Brown on each side for 45 seconds. Add more oil if needed. Transfer to slow cooker.
-4. Reduce heat to medium and melt 1 tablespoon butter. Add onions and cook for 5 minutes. Add garlic and cook for 1 minute. Use a silicone spatula to clean the bottom of the pan, removing any brown remnants. This will give the soup lots of good flavor. If necessary, add a splash of wine to help loosen it. Transfer the onions/garlic mixture to the slow cooker.
-5. Add all remaining ingredients except for the peas, corn starch mixture, and 2 tablespoons of cold butter.
-6. Cook on low for 8 hours or high for 4 hours, until the vegetables are softened and the potatoes are fork tender.
-7. Add the peas during the last 15 minutes of cooking. Remove the bay leaves and rosemary stem.
-8. Added the remaining 2 tablespoons of butter and mix well.
-9. Optional: To thicken, combine 1/4 cup COLD water with 3 Tablespoons of cornstarch. Slowly add it to the stew, stirring to incorporate. It will continue to thicken upon standing.
+4. Reduce heat to medium and melt 1 tablespoon butter. Add onions and cook for 5 minutes. Add garlic and cook for 1 minute. Use a silicone spatula to clean the bottom of the pan, removing any brown remnants. This will give the soup lots of good flavor. Transfer the onions/garlic mixture to the slow cooker.
+5. Add the garlic, onion, carrots, and potatoes to the slow cooker, and stir to combine. Then pour in the broth and add the bay leaf and rosemary.
+6. Add all remaining ingredients except for the peas, corn starch mixture, and 2 tablespoons of cold butter.
+7. Cook on low for 8 hours or high for 4 hours, until the vegetables are softened and the potatoes are fork tender.
+8. Add the peas during the last 15 minutes of cooking. Remove the bay leaves and rosemary stem.
+9. Added the remaining 2 tablespoons of butter and mix well.
+10. Optional: To thicken, combine 1/4 cup COLD water with 3 Tablespoons of cornstarch. Slowly add it to the stew, stirring to incorporate. It will continue to thicken upon standing.
 
 ## notes  
 *  This is a slow cooker recipe

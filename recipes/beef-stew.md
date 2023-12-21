@@ -13,12 +13,13 @@
 * 3 tablespoons olive oil
 * 3 tablespoons cold butter
 * 4 cloves garlic
-* 2 cups of yellow onion
 * 1 cup purple grape juice
 * 4 cups beef broth
 * 2 tablespoons worcestershire sauce
-* 5 medium carrots
-* 1lb baby yukon gold potatos
+* 2 cups of diced yellow onion
+* 4 cups cut carrots
+* 2 cups mushrooms
+* 1 lb baby yukon gold potatos
 * 2 bay leaves
 * 1 sprig roasmary
 * 1 cup frozen peas

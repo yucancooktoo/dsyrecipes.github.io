@@ -33,12 +33,12 @@
 5. Add all remaining ingredients except for the peas, corn starch mixture, and 2 tablespoons of cold butter.
 6. Cook on low for 8 hours or high for 4 hours, until the vegetables are softened and the potatoes are fork tender.
 7. Add the peas during the last 15 minutes of cooking. Remove the bay leaves and rosemary stem.
-8. Optional: To thicken, combine ¼ cup COLD water with 3 Tablespoons of cornstarch. Slowly add it to the stew, stirring to incorporate. It will continue to thicken upon standing.
+8. Optional: To thicken, combine 1/4 cup COLD water with 3 Tablespoons of cornstarch. Slowly add it to the stew, stirring to incorporate. It will continue to thicken upon standing.
 
 ## notes  
-*  
+*  This is a slow cooker recipe
 
 ## based on  
 *  https://thecozycook.com/slow-cooker-beef-stew/
-*  
+  
 

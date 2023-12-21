@@ -39,6 +39,6 @@
 *  This is a slow cooker recipe
 
 ## based on  
-*  https://thecozycook.com/slow-cooker-beef-stew/
+*  https://thecozycook.com/slow-cooker-beef-stew/ 
   
 

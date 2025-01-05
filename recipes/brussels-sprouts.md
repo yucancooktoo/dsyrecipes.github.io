@@ -17,7 +17,7 @@
 1. Preheat oven at 375
 2. Wash and cut brussels in half
 3. Place in mixed brussels in a foil sheet
-4. Place in oven for about 20 minutes
+4. Place in oven for about 30 minutes
 
 ## notes  
 *  
